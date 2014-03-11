@@ -5,6 +5,7 @@ Alrededor de la década de los sesenta, la imagen refuerza  el valor de  la comu
 
 La imagen se genera a partir de la extensión entre otra imagen, como un circuito que me permite generar vínculos inalámbricos. Hacer perdurable una sensación por determinada instancia, según el medio en el que se disipe. 
 La imagen se agota pero siempre se puede re-significar, reciclar, reconstruir. Así la imagen del mundo se convierte en el mundo.
+
 Lo que hay dentro de mí se refleja  en la construcción, dando  ordenamiento para  transformar todo lo que me rodea.
 En mi mente aparece la imagen como una percepción  de una sensación y  viceversa la imagen aparece como generadora de una sensación  dentro de mí.
 
