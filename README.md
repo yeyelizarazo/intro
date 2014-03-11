@@ -1,7 +1,6 @@
-
 La imagen de mi misma.
 
-Alrededor de la década de los sesenta, la imagen refuerza  el valor de  la comunicación orientado al mercantilismo y por ende al condicionamiento social. Sin embargo, el reconocimiento de la imagen como una herramienta de poder, en la traducción de lo intangible nace junto a la humanidad. 
+Alrededor de la década de los sesenta, la imagen refuerza  el valor de  la comunicación orientado al mercantilismo y por ende al condicionamiento social. Sin embargo, el reconocimiento de la imagen como una herramienta de poder, en la traducción de lo intangible nace junto con la humanidad. 
 
 
 La imagen nace en la extensión entre otra imagen, como un circuito que me permite generar vínculos inalámbricos. Hacer perdurable una sensación por determinada instancia, según el medio en el que se disipe. 
