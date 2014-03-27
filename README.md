@@ -1,20 +1,17 @@
 La imagen de mi misma.
 
-Alrededor de la década de los sesenta, la imagen refuerza  el valor de  la comunicación orientado al mercantilismo y por ende al condicionamiento social. Sin embargo, el reconocimiento de la imagen como una herramienta de poder, en la traducción de lo intangible nace junto con la humanidad. 
+La imagen se gesta desde nuestros inicios,es decir desde que nacemos como individuos con consciencia. Permitiéndonos construir un vínculo con el mundo tanto interno como externo.
+La imagen se genera a partir de la extensión de otra imagen a través de la imaginación, la memoria, la ilusión y el pensamiento. En el plano material en el que nos encontramos nuestra mente fusiona los estímulos convirtiéndolos en proyecciones ilimitadas, las cuales se evidencian en el mundo a nuestro alrededor.
+La construcción de la imagen nos permite hacer perdurable una sensación por determinada instancia, según el medio en el que se disipe.Siempre se puede re-significar, reciclar y reconstruir. 
+Así la imagen que tengo del mundo se convierte en el mundo.
 
 
-La imagen se genera a partir de la extensión entre otra imagen, como un circuito que me permite generar vínculos inalámbricos. Hacer perdurable una sensación por determinada instancia, según el medio en el que se disipe. 
-La imagen se agota pero siempre se puede re-significar, reciclar, reconstruir. Así la imagen del mundo se convierte en el mundo.
-
-Lo que hay dentro de mí se refleja  en la construcción, dando  ordenamiento para  transformar todo lo que me rodea.
-En mi mente aparece la imagen como una percepción  de una sensación y  viceversa la imagen aparece como generadora de una sensación  dentro de mí.
 
 
-Yo puedo auto-regular y condicionar todos los aspectos de la imagen. Mi percepción entera se ve nutrida desde otros planos hacia otras dimensiones de entendimiento. La imagen que yo construyo a través de mi existencia es tan importante como la misma, desde el sentido de la creación. Es un lienzo más para pintar. 
-Johanna Andrea.
 
 
-Referentes :
+
+
 -El retorno de lo real, la vanguardia a finales del siglo. Hal Foster.
 
 
