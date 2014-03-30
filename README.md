@@ -6,6 +6,7 @@ En el plano material en el que me encuentro la fusion de los estímulos se trans
 
 La construcción de la imagen me permite hacer perdurable una sensación por determinada instancia, según el medio en el que se disipe.
 Siempre la puedo re-significar, reciclar y reconstruir. 
+
 Así la imagen que tengo del mundo se convierte en el mundo.
 
 
