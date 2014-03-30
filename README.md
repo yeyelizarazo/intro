@@ -1,4 +1,4 @@
-En ajuste: La imagen de mi misma.
+La imagen de mi misma.
 
 La imagen se gesta desde el inicio. Es decir Desde que nazco como individuo con consciencia, permitiéndome construir un vínculo con el mundo  interno y externo que me conforma.
 
